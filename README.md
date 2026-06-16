@@ -2,7 +2,7 @@
 
 **Estudante de Engenharia de Software | QA em Formação | 21 anos**
 
-📍 Brasília - DF | 📧 mariaclara.castro@gmail.com | 📱 (61) 98241-3924
+📍 Brasília - DF | 
 
 ---
 
